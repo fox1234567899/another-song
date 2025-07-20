@@ -1,3 +1,4 @@
-# another-song
-fill in the blanks
-I was _____ you were on a ____ then our hearts ______ like neutron star _____
+# :|
+I filled it here you go.
+I was searching you were on a mission then our hearts combined like neutron star collision.
+
